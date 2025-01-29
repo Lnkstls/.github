@@ -4,7 +4,8 @@ Unblocked Games is your ultimate hub for **unblocked games 6x**, **unblocked gam
 
 ---
 
-## 👉👉👉 [Click here to Play](https://unblocked-gaming.github.io/) 👈👈👈
+## 👉👉👉 <a href="https://unblocked-gaming.github.io/">Click here to Play</a>👈👈👈
+## 👉👉👉 <a href="https://ubg101.github.io/">Click here to Play</a>👈👈👈
 
 ## Why Choose Unblocked Games? ✨
 - **Access Anywhere**: Bypass restrictions and enjoy games on school, office, or library networks.
